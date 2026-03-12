@@ -1,0 +1,1 @@
+# stahovacibratislava-sk
